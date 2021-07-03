@@ -1,0 +1,1 @@
+    While deep frying, heat oil until medium or medium-high hot and deep fry the fries until golden and crisp. Sprinkle salt or ground spices, herbs and serve straight away. Remove and add in salt and herbs. Toss, mix and serve hot.
